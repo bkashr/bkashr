@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on... anything!!!
 - 📫 How to reach me ryanboubsil@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I have the RK5 starting in BO3
+
 
 <!---
 bkashr/bkashr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
