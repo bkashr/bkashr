@@ -1,1 +1,1 @@
-Hello, I enjoy sports analytics and working with data to create insights on events. I also like playing chess, games, and watching movies
+Hello, I enjoy sports analytics and working with data to create insights on events. I also love creating ideas for new projects or products that can help make peoples lives easier. Some of my hobbies include playing chess, video games, jiu jitsu, and watching movies
